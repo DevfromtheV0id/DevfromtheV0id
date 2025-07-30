@@ -6,8 +6,8 @@
 
 - 📫 How you can reach me>>
    - ziekie@protonmail.com
-   - https://www.linkedin.com/in/sulav-p-94b866377/
-   - (Linkedin)[https://www.linkedin.com/in/sulav-p-94b866377/].
+   - Linked In >>>> https://www.linkedin.com/in/sulav-p-94b866377/
+   - 
    - 
 
 
